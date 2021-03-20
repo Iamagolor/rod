@@ -1,1 +1,0 @@
-# lamagolor.github.io
